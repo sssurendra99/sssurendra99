@@ -25,8 +25,7 @@ Collaboration fuels my work—great things happen when minds meet.
 
 ### Send me a message!
 
-- I am open for collaborations, so if you find my work interesting feel free to send me a message! Even if you don't, send me a message anyway!
-Here is where you can find me:
+- I’d love to connect and explore opportunities together! Here’s where you can find me:
 
 
 <p>
