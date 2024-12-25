@@ -1,20 +1,20 @@
 # **Hi, I'm Sumal Surendra**  
-*Where curiosity meets creation, and ideas evolve into innovation.*  
+*Where curiosity sparks creation, and ideas become reality.*  
 
-✨ **A Builder at Heart**:  
-I craft solutions that bridge imagination and technology, transforming ideas into reality.  
+✨ **A Builder**  
+I bring ideas to life, blending imagination with technology.  
 
-⚙️ **Engineer of Possibilities**:  
-From scalable systems to seamless user experiences, I’m driven to create software that resonates and inspires.  
+⚙️ **An Engineer**  
+Focused on crafting systems and experiences that work and inspire.  
 
-📚 **Perpetual Learner**:  
-Every line of code is a step in my journey to innovate, exploring the uncharted territories of technology.  
+📚 **A Lifelong Learner**  
+Each line of code is a step forward in my journey to innovate.  
 
-🌌 **Dreamer & Doer**:  
-Fueled by curiosity, I thrive on turning challenges into opportunities and visions into impactful results.  
+🌌 **A Dreamer & Doer**  
+Curious, driven, and always turning challenges into opportunities.  
 
-🌍 **Connecting Worlds**:  
-Passionate about collaboration and sharing ideas, I believe great things happen when minds align.  
+🌍 **A Connector**  
+Collaboration fuels my work—great things happen when minds meet.  
 
 ### What do I do?
 
@@ -25,7 +25,8 @@ Passionate about collaboration and sharing ideas, I believe great things happen 
 
 ### Send me a message!
 
-- I am open for collaborations, so if you find my work interesting feel free to send me a message! Even if you don't, send me a message anyway! Here is where you can find me:
+- I am open for collaborations, so if you find my work interesting feel free to send me a message! Even if you don't, send me a message anyway!
+Here is where you can find me:
 
 
 <p>
