@@ -25,7 +25,7 @@ Collaboration fuels my work—great things happen when minds meet.
 
 ### Send me a message!
 
-- I’d love to connect and explore opportunities together! Here’s where you can find me:
+I’d love to connect and explore opportunities together! Here’s where you can find me:
 
 
 <p>
